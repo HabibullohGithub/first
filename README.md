@@ -1,0 +1,2 @@
+# first
+loyiha birinchi
